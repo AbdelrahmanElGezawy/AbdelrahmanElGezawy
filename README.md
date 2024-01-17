@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AbdelrahmanElGezawy
+- 👀 I’m interested in flutter dev, Android dev, Cyber security, Chess and football
+- 🌱 I’m currently learning backend dev,
+- 💞️ I’m looking to collaborate on developing sustainable , profitable and creative mobile apps
+- 📫 How to reach me +20 10 2237 2501, elgezawybody@gmail.com
+- ⚡ Fav qoute: ✨Fortis Fortuna Adiuvat✨
